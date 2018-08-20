@@ -1,0 +1,2 @@
+# Practica1_Frida_Granados_Ranchos_5IM9
+Prueba github
